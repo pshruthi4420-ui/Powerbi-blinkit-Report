@@ -1,4 +1,4 @@
-Key Insights
+**Key Insights**
 
 Tier 3 outlets contribute the highest sales
 
